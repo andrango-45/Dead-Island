@@ -241,4 +241,4 @@ Dead Island 2 is offered as a full free version for Windows, with all features a
 Unleash your inner zombie exterminator and download Dead Island 2 today for an unforgettable gaming experience!
 
 ---
-**Last updated:** 2026-10-30 15:35:32 UTC
+**Last updated:** 2026-10-30 20:26:40 UTC
